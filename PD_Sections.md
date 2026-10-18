@@ -1,5 +1,5 @@
 ## 1. Sources of Product Descriptions:
-----
+
 
 ## 1. https://www.sezane.com/fr-fr/product/coussin-velours-patchwork-petit-modele/ruggine-beige-et-caramel#size-TU
 
