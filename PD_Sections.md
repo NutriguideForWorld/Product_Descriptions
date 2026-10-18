@@ -22,3 +22,6 @@ Add to cart
 
 
 ### Product -  "Workshops"
+<img width="741" height="395" alt="image" src="https://github.com/user-attachments/assets/bcb9a9f8-386e-476f-ab47-1635a3413de1" />
+
+---
